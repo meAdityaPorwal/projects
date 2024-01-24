@@ -1,2 +1,2 @@
 # projects
-Projectsn, I have made
+Projects, I have made
